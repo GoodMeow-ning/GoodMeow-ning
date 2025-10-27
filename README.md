@@ -5,7 +5,7 @@
 
 Heyo! More info on strawpage!
 
-<img width="57" height="86" alt="image" src="https://github.com/user-attachments/assets/061d031a-fcff-4079-bdb4-ca38531300a4" />
+<img src="https://github.com/user-attachments/assets/061d031a-fcff-4079-bdb4-ca38531300a4" />
 
 
 I block freely!!!
