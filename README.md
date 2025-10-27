@@ -17,11 +17,11 @@ I block freely!!!
 
 I am a minor
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/04bf0715-1cb5-4428-a410-3b59cf8de1da" />
+<img src="https://github.com/user-attachments/assets/04bf0715-1cb5-4428-a410-3b59cf8de1da" />
 
 
 stay gold stamp by @merislwtte on tumblr!
 
 
-<img width="512" height="724" alt="image" src="https://github.com/user-attachments/assets/c8eb7f83-8f15-4be1-9148-e24b73143d22" />
+<img src="https://github.com/user-attachments/assets/c8eb7f83-8f15-4be1-9148-e24b73143d22" />
 
