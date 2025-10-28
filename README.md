@@ -7,6 +7,8 @@ Heyo! More info on strawpage!
 
 <img src="https://github.com/user-attachments/assets/061d031a-fcff-4079-bdb4-ca38531300a4" />
 
+I go by Yan Qing online, but my friends have a list of other names I go by
+
 
 I block freely!!!
 
